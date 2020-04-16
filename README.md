@@ -1,3 +1,3 @@
-# https://heloiza00.github.io/av/
+# https://heloiza00.github.io
 av
 ideias de decoração
